@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **abdur.rizvi321@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1qzYvOGrAZ9rEeLsXL-7fTwel99m3u4-9/edit?usp=sharing&ouid=105504561435190015215&rtpof=true&sd=true](https://docs.google.com/document/d/1qzYvOGrAZ9rEeLsXL-7fTwel99m3u4-9/edit?usp=sharing&ouid=105504561435190015215&rtpof=true&sd=true)
+- 📄 Know about my experiences [here.](https://github.com/rizvi5299/rizvi5299/blob/main/Abdur-Rehman%20Rizvi%20Resume.pdf)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
